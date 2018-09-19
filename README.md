@@ -1,1 +1,0 @@
-# buddythumbs.github.io
